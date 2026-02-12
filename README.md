@@ -1,1 +1,2 @@
-//
+//ACTIVITY 2    
+JAN LORENZ LAROCO
